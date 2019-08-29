@@ -1,3 +1,3 @@
-Justin Bieber - I don't care </br>
-Justin Bieber - Where are u now </br>
-Justin Bieber - What do you mean 
+Skrillex & Diplo - "Mind" feat. Kai </br>
+Hippie Sabotage - Devil Eyes </br>
+Jack Ü - Take Ü There feat. Kiesza 
