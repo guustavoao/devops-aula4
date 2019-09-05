@@ -1,4 +1,4 @@
 Vingadores: Guerra Infinita</br>
 Vingadores: Ultimato</br>
-Homem de ferro: 3
-O bagulho é louco.
+Homem de ferro: 3</br>
+O bagulho é louca.
